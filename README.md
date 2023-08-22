@@ -1,1 +1,1 @@
-This is Literally just a website for me and my friends
+This is my cool GGG Website check it out lol
